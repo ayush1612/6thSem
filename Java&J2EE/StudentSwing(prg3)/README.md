@@ -1,3 +1,3 @@
 ## OUTPUT
 
-![prg3](https://user-images.githubusercontent.com/42496674/74954160-b4627d80-5428-11ea-91fc-aa4fd475f08a.png)
+![prg3](https://user-images.githubusercontent.com/42496674/75006781-f6c3a300-5498-11ea-8a97-e7781233862c.png)
